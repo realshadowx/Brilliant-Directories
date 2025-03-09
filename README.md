@@ -10,7 +10,12 @@ In this article, we’ll show you the top Brilliant Directories coupon codes, ho
 
 Use the Brilliant Directories coupon code [**VIP30**](https://bit.ly/43j98Hf) at checkout to save 30% on Annual and Lifetime Website Plans, Website Add-Ons and Additional Services. Limited-time offer, [**Claim It Today**](https://bit.ly/43j98Hf)!
 
-## 
+## Brilliant Directories 25% OFF Coupon Code
+
+Use the coupon code **[GET25](https://bit.ly/43j98Hf)** at checkout to save 25% on Brilliant Directories Annual and Lifetime Website and much more. **[Clim The Deal Now!](https://bit.ly/43j98Hf)**
+
+## Claim 20% OFF Coupon Code
+You can now use the coupon code **[GET20](https://bit.ly/43j98Hf)** at checkout to save 20% on Annual and Lifetime Website Plans, Website Add-Ons and Additional Services. **[Grab The Deal Now](https://bit.ly/43j98Hf)**.
 
 ## Top Brilliant Directories Coupon Codes
 
