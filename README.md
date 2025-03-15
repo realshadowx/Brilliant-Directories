@@ -1,5 +1,7 @@
 # Brilliant Directories Coupon 2025 - 30% Off Lifetime Deal 🔥
 
+Hello folks, Amir here.
+
 Whether you want to create a local business directory, job board, or membership site, [Brilliant Directories](https://bit.ly/43j98Hf) provides all the tools you need to succeed. And the best part? You can save money on your subscription with exclusive coupon codes!
 
 In this article, we’ll show you the top Brilliant Directories coupon codes, how to redeem them, and how much you can save. Let’s dive in and start unlocking those savings!
