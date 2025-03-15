@@ -6,18 +6,18 @@ Whether you want to create a local business directory, job board, or membership 
 
 In this article, we’ll show you the top Brilliant Directories coupon codes, how to redeem them, and how much you can save. Let’s dive in and start unlocking those savings!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfjRd1fTRQiRUXPseuwDISLc3KHp2SRwL_BZrqQAFmndeKnZb9jppSVaapRQFvVITc2VRduDGFCOoDVZFY9ZXznmWSGaNmPI_RR4v_pFgfecJK0POfBYzdebg2Fo8kqr_oMkUYk6w?key=b1LSm9xalgRjvN4JjkbcjvUO)](https://bit.ly/43j98Hf)
+[![Discount button](https://github.com/user-attachments/assets/e64eea8a-2667-4ddc-8f0d-a55b665ea4b4)](https://www.brilliantdirectories.com/freetrial?ref=shadow)
 
 ## Brilliant Directories 30% Off Lifetime Coupon
 
-Use the Brilliant Directories coupon code [**VIP30**](https://bit.ly/43j98Hf) at checkout to save 30% on Annual and Lifetime Website Plans, Website Add-Ons and Additional Services. Limited-time offer, [**Claim It Today**](https://bit.ly/43j98Hf)!
+Use the Brilliant Directories coupon code [**VIP30**](https://www.brilliantdirectories.com/freetrial?ref=shadow) at checkout to save 30% on Annual and Lifetime Website Plans, Website Add-Ons and Additional Services. Limited-time offer, [**Claim It Today**](https://www.brilliantdirectories.com/freetrial?ref=shadow)!
 
 ## Brilliant Directories 25% OFF Coupon Code
 
-Use the coupon code **[GET25](https://bit.ly/43j98Hf)** at checkout to save 25% on Brilliant Directories Annual and Lifetime Website and much more. **[Clim The Deal Now!](https://bit.ly/43j98Hf)**
+Use the coupon code **[GET25](https://www.brilliantdirectories.com/freetrial?ref=shadow)** at checkout to save 25% on Brilliant Directories Annual and Lifetime Website and much more. **[Clim The Deal Now!](https://www.brilliantdirectories.com/freetrial?ref=shadow)**
 
 ## Claim 20% OFF Coupon Code
-You can now use the coupon code **[GET20](https://bit.ly/43j98Hf)** at checkout to save 20% on Annual and Lifetime Website Plans, Website Add-Ons and Additional Services. **[Grab The Deal Now](https://bit.ly/43j98Hf)**.
+You can now use the coupon code **[GET20](https://www.brilliantdirectories.com/freetrial?ref=shadow)** at checkout to save 20% on Annual and Lifetime Website Plans, Website Add-Ons and Additional Services. **[Grab The Deal Now](https://www.brilliantdirectories.com/freetrial?ref=shadow)**.
 
 ## Top Brilliant Directories Coupon Codes
 
@@ -51,7 +51,7 @@ Here are the best and latest Brilliant Directories coupon codes that can help yo
 * Expiry Date: Valid until 27/11/2025.
 * How to Use the Code: Apply this code at checkout to receive a 10% discount for the first 3 months of your subscription.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfjRd1fTRQiRUXPseuwDISLc3KHp2SRwL_BZrqQAFmndeKnZb9jppSVaapRQFvVITc2VRduDGFCOoDVZFY9ZXznmWSGaNmPI_RR4v_pFgfecJK0POfBYzdebg2Fo8kqr_oMkUYk6w?key=b1LSm9xalgRjvN4JjkbcjvUO)](https://bit.ly/43j98Hf)
+[![Discount button](https://github.com/user-attachments/assets/e64eea8a-2667-4ddc-8f0d-a55b665ea4b4)](https://www.brilliantdirectories.com/freetrial?ref=shadow)
 
 ## How to Redeem Brilliant Directories Coupon Codes?
 
@@ -69,7 +69,7 @@ Once you’ve selected your plan, head to checkout. You will see an option to en
 4. Step 4: Confirm Your Savings
 After entering the code, your discount will be reflected in your total price. Double-check everything to make sure your coupon has been applied, then complete the checkout process.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfjRd1fTRQiRUXPseuwDISLc3KHp2SRwL_BZrqQAFmndeKnZb9jppSVaapRQFvVITc2VRduDGFCOoDVZFY9ZXznmWSGaNmPI_RR4v_pFgfecJK0POfBYzdebg2Fo8kqr_oMkUYk6w?key=b1LSm9xalgRjvN4JjkbcjvUO)](https://bit.ly/43j98Hf)
+[![Discount button](https://github.com/user-attachments/assets/e64eea8a-2667-4ddc-8f0d-a55b665ea4b4)](https://www.brilliantdirectories.com/freetrial?ref=shadow)
 
 ## Pricing Information & How Much You Can Save
 
